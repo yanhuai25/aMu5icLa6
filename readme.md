@@ -1,0 +1,1 @@
+At MusicLab, we're passionate about helping you learn to play an instrument. Our platform offers a wide range of courses and resources that are designed to be accessible to anyone, regardless of experience level.
